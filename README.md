@@ -1,4 +1,4 @@
-<Programa dedicado ao meu amor>
+<Programa dedicado ao meu amor
 
 >Link para navegação do site:
 
